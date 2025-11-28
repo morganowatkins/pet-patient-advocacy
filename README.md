@@ -16,13 +16,21 @@ Call me for a consultation on you, your loved one, or your pet’s health
 📞(317) 213-8425
 
 What I can do for you:
-I can help you decide whether to seek out care and where
-I can prepare you for the visit
-I can go with you to the visit
-I can decipher your results and visit summary & work with you on next steps/follow-up, monitoring
+
+
+- I can help you decide whether to seek out care and where
+
+- I can prepare you for the visit
+
+- I can go with you to the visit
+
+- I can decipher your results and visit summary & work with you on next steps/follow-up, monitoring
 
 
 My background
+
 ‘18-19 Biology at Indiana University
+
 ‘19-21 Animal Science at Purdue University
+
 ‘21-‘25 Veterinary Medicine at Purdue College of Veterinary Medicine
