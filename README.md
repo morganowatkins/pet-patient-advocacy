@@ -8,7 +8,7 @@ Seeking out veterinary or medical care is never an easy decision and is not some
 
 Let me help ensure you make the most of the time and money you invest in your health, your loved one's health, or your pet.
 
-I believe you should be REWARDED for taking the time out of your busy life to prioritize your health, your loved ones health, and your pets🐾
+I believe you should be REWARDED for taking the time out of your busy life to prioritize your health or the health of a loved one or pet🐾
 
 And I am passionate about ensuring you receive the best veterinary or medical care possible.
 
